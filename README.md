@@ -1,3 +1,1 @@
-# fuck-claude-fuck-anthropic
-Fuck Anthropic!
-Fuck this evil company!
+# Anthropic is an evil, biased company. Fuck them.
